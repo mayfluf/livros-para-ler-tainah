@@ -1,3 +1,5 @@
+link para baixar : https://www.kufunda.net/publicdocs/Intelig%C3%AAncia%20artificial%20(Kai-Fu%20Lee).pdf
+ 
  O livro, originalmente publicado em 2019, aborda a ascensão da IA, seu impacto global e as transformações sociais, com foco na China e nos EUA.
 
 1. Contexto Histórico e Geopolítica da IA 
