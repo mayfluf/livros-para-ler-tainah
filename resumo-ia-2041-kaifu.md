@@ -1,3 +1,6 @@
+link para baixar: https://pdfcoffee.com/2041-como-a-inteligencia-artif-kai-fu-lee-pdf-free.html
+
+
 Abaixo, um panorama capítulo a capítulo de “IA 2041: Dez Visões para Nosso Futuro”, de Kai-Fu Lee,
 seguindo o mesmo formato: tópicos principais e, em cada um, as previsões que hoje já estão desatualizadas, 
 complementadas por desenvolvimentos reais até maio de 2025.
